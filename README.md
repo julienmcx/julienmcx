@@ -5,7 +5,7 @@
 
 - 👯 Je ne recherche pas spécialement de collaboration...
 
-- 📫 <b>Mon contact</b> : **julienmichaux2006@gmail.com**
+- 📫 <b>Mon contact</b> : **uniquement sur demande**
 
 <h3 align="left">Je suis aussi présent sur les réseaux sociaux :</h3>
 <p align="left">
