@@ -18,4 +18,3 @@
 
 <p align="center"><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=julienmcx&" alt="julienmcx" /></p>
 
-![](https://hit.yhype.me/github/profile?user_id=51181484)
